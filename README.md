@@ -1,0 +1,1 @@
+# Amenities-Magnet-Identifying-Key-Drivers-of-Residential-Rental-Prices-in-Germany
